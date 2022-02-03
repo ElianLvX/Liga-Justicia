@@ -1,3 +1,3 @@
 # Historia
 Jay Garrick era un estudiante universitario en 1938 que accidentalmente inhaló vapores de agua pesada después de tomar un descanso para fumar dentro de su laboratorio donde había estado trabajando. ​ Como resultado, descubrió que podía correr a una velocidad sobrehumana y que tenía reflejos igualmente rápidos.
-![](https://www.google.com/search?q=historia+de+flash&sxsrf=APq-WBvN3gmgAijLL6Eyhcant3GMoDhzEw:1643866872716&tbm=isch&source=iu&ictx=1&vet=1&fir=2Irmb1H4Km9EcM%252CwRM2J6LAucztOM%252C_&usg=AI4_-kTH95FwXhN1HvdZVVSDxvPsfXDyAA&sa=X&ved=2ahUKEwik8IWo6eL1AhVUlGoFHQxCC5gQ9QF6BAgJEAE#imgrc=2Irmb1H4Km9EcM){width='100px'}
+![](https://www.google.com/search?q=historia+de+flash&sxsrf=APq-WBvN3gmgAijLL6Eyhcant3GMoDhzEw:1643866872716&tbm=isch&source=iu&ictx=1&vet=1&fir=2Irmb1H4Km9EcM%252CwRM2J6LAucztOM%252C_&usg=AI4_-kTH95FwXhN1HvdZVVSDxvPsfXDyAA&sa=X&ved=2ahUKEwik8IWo6eL1AhVUlGoFHQxCC5gQ9QF6BAgJEAE#imgrc=2Irmb1H4Km9EcM)
